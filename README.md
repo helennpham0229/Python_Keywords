@@ -6,4 +6,5 @@ Imagine working for a digital marketing agency, and the agency is approached by 
 - love seats
 - recliners
 - sofa beds
+
 The client is a low-cost retailer, offering many promotions and discounts. You will need to focus on such keywords. You will also need to move away from luxury keywords and topics, as you are targeting price-sensitive customers. Because they are going to be tight on budget, it would be good to focus on a tightly targeted set of keywords and make sure they are all set to exact and phrase match.
